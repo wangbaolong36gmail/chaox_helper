@@ -1,6 +1,6 @@
 不多废话，上截图
 
-到 -> [此处] <- (http://suo.im/6ojjMR)下载app文件 （仅支持安卓，ios暂不支持）
+到 -> [此处] <- ( http://suo.im/6ojjMR ) 下载app文件 （仅支持安卓，ios暂不支持）
 
 安装后：
 
